@@ -1,2 +1,0 @@
-# mbah-dukun
-AIRDROP
